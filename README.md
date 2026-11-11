@@ -1,1 +1,5 @@
-# XII-TKJ
+![image alt](https://github.com/NOVA-tri/XII-TKJ/blob/f5954d2a71910ba639f85fb3e437d001235e7833/Screenshot_20261111-151840.jpg)
+![image alt](https://github.com/NOVA-tri/XII-TKJ/blob/f5954d2a71910ba639f85fb3e437d001235e7833/Screenshot_20261111-151857.jpg)
+![image alt](https://github.com/NOVA-tri/XII-TKJ/blob/f5954d2a71910ba639f85fb3e437d001235e7833/Screenshot_20261111-151918.jpg)
+![image alt](https://github.com/NOVA-tri/XII-TKJ/blob/f5954d2a71910ba639f85fb3e437d001235e7833/Screenshot_20261027-195047.jpg)
+![image alt](https://github.com/NOVA-tri/XII-TKJ/blob/f5954d2a71910ba639f85fb3e437d001235e7833/Screenshot_20261111-151907.jpg)
